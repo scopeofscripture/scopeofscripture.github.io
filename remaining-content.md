@@ -1,0 +1,488 @@
+REMAINDER OF THE 157-PAGE DOCUMENT
+(Everything not already used in the 25 built full-articles — for Christian to review)
+======================================================================
+
+
+
+----------------------------------------------------------------------
+CHUNK 1 — Opening section (lines 1-350), before the first matched article title
+----------------------------------------------------------------------
+
+He came unto his own, and his own received him not. John 1:11
+
+BUT AS MANY AS RECEIVED HIM, TO THEM GAVE HE POWER TO BECOME THE SONS OF
+GOD \... John 1:12
+
+Would it surprise you to learn that nearly all writings of ancient
+peoples worldwide tell the same story of a fall from the original
+paradise state, a departure from unity with the Creator? Art and
+literature have recorded this "Fall" as it became known and it has been
+present within human culture from time in memorial throughout the world.
+
+Egypt, Babylonia, Sumeria, China, India and even the Americas and the
+Pacific. Indeed, among all peoples, this tragedy is present in the
+oldest racial memory. The loss of immortality caused by man's
+disobedience to divine law was keenly felt by more than one ancient
+writer. (For example, the Mesopotamian Temptation Seal -- now in British
+Museum. Also, Adapa Myth and the Gilgamesh Epic. A translation of the
+Adapa Myth made by E.A. Speiser is found in J.B. Pritchard, ed., Ancient
+Near East Texts Relating to the Old Testament, 3rd ed. Princeton, N.J.,
+1969, pp. 101-103.
+
+A translation of the Gilgamesh Epic made by Speiser is found in Ancient
+Near East Texts Relating to the Old Testament, pp. 72-79. See
+especially, pp. 88,90,96. Alfred Jeremias, Das Alte Testament im Lichte
+des Alten Orients, 4th ed. Leipzig 1930, p.99. W. H. Prescott, Conquest
+of Mexico, vol. 1. London: J.M. Dent and Sons Ltd., 1948, p.380)
+
+Many prayers and hymns of the ancients impressively reveal how these
+people clearly understood the principles of the Ten Commandments and
+knew quite well what was right and wrong. (Jonathan Gray, Ark of the
+Covenant, page 56).
+
+Throughout the world prophecy of a coming Deliverer, or Messiah, -a
+"restorer"- one who will reconcile man to God, spans some 4,000 years.
+Over the centuries, more information is received concerning this coming
+person. The simple outline of the first prophecy becomes progressively
+more detailed as a Supreme Mind inspires different prophets in
+succession. The accurate recording of these prophecies is rendered in
+the Bible.
+
+Each new messenger is like a painter who uses the brush to put in
+details --- until at last the word painting is finished and the full
+picture of the coming Messiah stands out perfect and complete. His whole
+life story - including the precise time he would appear, was written
+down hundreds of years in advance.
+
+In the Old Testament of the bible some 300 prophecies are recorded of
+this restorer of which we shall now examine several.
+
+He is the "seed" of the woman (Genesis 3:15), and "to us a child is
+born, unto us a son is given." (Isaiah 9:6) "This is the name by which
+he will be called: The Lord \[Yahweh\] our righteousness." (Jeremiah
+23:5-6) "And he will be called Wonderful, Counsellor, Mighty God,
+Everlasting Father, Prince of Peace." (Isaiah 9:6) "Whose goings forth
+have been from the days of eternity." (Micah 5:2)
+
+Yes, over time a progressive thread of prophecy unfolds
+
+Beginning with Noah, in addressing his three sons who became the
+progenitors of the three racial branches of mankind, he references "the
+Lord, the God of Shem" who was ancestor of the Semites, Gen 9:6.
+Following on from this revelation the book of Genesis reveals in a
+series of far reaching prophecies how Abraham and his seed will play a
+significant role, which includes the formation of nations blessed by the
+acceptance of the Messiah.
+
+This promise passes through a certain linage -Isaac and Jacob. (Genesis
+28:13,14) Continuing on the prophecies narrow it still further, to one f
+Jacob's twelve sons, the coming ONE- the Christ- will be born of the
+tribe of Judah. (Genesis 49:8-11). And of all the families in Judah, he
+will appear through the family-line of Jesse. (Isaiah 11:1,10). Jesse
+had at least eight sons and prophecy eliminates all of them except one
+--- David.
+
+The Messiah will be a descendant of King David. (Jeremiah 23:5,6; 2
+Samuel chapter 7) He will be born in Bethlehem --- and a particular
+Bethlehem at that. You see, there were two towns called Bethlehem. There
+was Bethlehem of Zebulon, 70 miles to the north in Galilee; but this was
+not where the Messiah would be born. The prophesied place was "Bethlehem
+Ephratah\... in Judah". (Micah 5:2) Thus eliminating all the cities in
+the world, except one. And what about His appearing "the Lord, whom ye
+seek, will suddenly come to his temple." (Malachi 3:1)
+
+This prophecy has a time element to it as well as it relates to the
+Second Temple as the First Temple was already destroyed. It indicates
+that Messiah will appear BEFORE the Second Jewish Temple is destroyed
+and the Jews finally exiled. This, along with three similar prophecies
+(Genesis 49:10; Haggai 2:9; Daniel 9:25-27), required that the Messiah
+come while the Second Jewish Temple was still standing. The time factor
+was clearly spelt out.
+
+This is of great significance when we understand that the Second Jewish
+Temple was destroyed by the Romans in AD 70.
+
+After the destruction of Solomon's Temple in 586 BC, a Second Temple was
+constructed in Jerusalem by Zerubbabel and many sorrowed over the fact
+that it was inferior to Solomon's Temple. But the prophetic compensation
+to those who sorrowed over that inferiority, was that the glory of the
+latter house should exceed the glory of the former house (Haggai 2:9),
+since the Messiah would come to that Second Temple (Malachi 3:1). So He
+had to come BEFORE the destruction of that temple --- or the prophecy
+would fail.
+
+Another of the timing prophecies states: "And after the sixty-two weeks
+Messiah shall be cut off "cut off out of the land of the living" --
+Isaiah 53:8, but not for himself; and the people of the prince that
+shall come shall destroy the city and the sanctuary." (Daniel 9:26) This
+is a remarkable statement! You will notice that a time sequence was
+specified. First, Messiah is cut off (dies). After that, the city
+(Jerusalem) and sanctuary (temple) is destroyed. Jerusalem and the
+temple were destroyed by Titus and his army in AD 70.
+
+Another timing element is before tribe of Judah loses its judicial power
+"The scepter -tribal staff, shall not depart from Judah, nor a lawgiver
+from between his feet, Until Shiloh -the Messiah comes." (Genesis
+49:10). There was no ambiguity about this. Jewish rabbis understood that
+"Shiloh" - "His gift", "the one to whom it belongs," "wished for", was
+the coming Messiah.
+
+The Targums, or Chaldee Paraphrasis of Jerusalem, renders this prophecy
+"until the time when King Messiah shall come." (E. C Ettmann, Messianic
+Evidences, Melbourne, Australia: Presbyterian Women's Missionary Union,
+p.18). Onkelos (60 BC): "until Messiah comes, whose is the kingdom." The
+Talmud: "Shiloh is reckoned among the names of Messiah." The Targum
+Pseudo Jonathan on Gen-49: states: "How noble is the King, Messiah, who
+is going to rise from the house of Judah."
+
+You will notice that two signs were to occur soon after the arrival of
+the Messiah:
+
+1\. Removal of the scepter or identity of the Hebrew tribe of Judah.
+
+2\. Suppression of the judicial power ("lawgiver").
+
+It is important to note that right through history (even during the
+captivity in Babylon in the 6th century BC), the tribe of Judah never
+lost its "tribal staff" or "national identity". They always possessed
+their own lawgivers or judges, even while in captivity. (Ezra 1:5,8) It
+was not until AD 11 that the Roman procurators took away the power of
+the Jewish Sanhedrin (ruling council), to exercise the jus gladii (the
+sovereign right of life and death) themselves.
+
+This deprived the nation of Judah of its ability to pronounce capital
+sentences. (Flavius Josephus, The Antiquities of the Jews. New York:
+Ward, Lock, Bowden & Co., 1900, Book 17, Chap. 13, 1-5) The Jewish
+Talmud itself admits that this occurred. (Talmud, Jerusalem, Sanhedrin,
+fol. 24, recto.)
+
+Rabbi Rachmon says: When the members of the Sanhedrin found themselves
+deprived of their right over life and death, a general consternation
+took possession of them; they covered their heads with ashes, and their
+bodies with sackcloth, exclaiming: 'Woe unto us, for the scepter has
+departed from Judah, and the Messiah has not come! -M. M. LeMann, Jesus
+Before the Sanhedrin. Trans. By Julius Magath. Nashville: Southern
+Methodist Publishing House, 1886, pp. 28-30)
+
+And to top it off, there were other Old Testament prophecies that
+identified not just the year, but the precise month, day and hour in
+history when that event would occur.
+
+Here follows Daniel's Seventy weeks prophecy. Seventy weeks are
+determined...\[for the coming of the Messiah, the Promised One\]. Know
+therefore and understand, that from the going forth of the decree to
+restore and build Jerusalem UNTO MESSIAH THE PRINCE shall be seven
+weeks, and sixty-two weeks: the street shall be built again, and the
+wall, even in troublous times.
+
+And after the sixty-two-week period shall Messiah be killed, not for
+himself \[but for others\]: after that the people of a coming prince
+shall destroy Jerusalem and the temple; and at the end of the war, its
+desolation shall come like a flood.
+
+For one week, the Messiah shall confirm with many God's promise of
+rescue for man: and half way through the week he shall bring the
+sacrificial system to an end, and because of its abuse he shall destroy
+its temple, until the end of time, when the judgment which is decided
+shall be inflicted upon the desolating power. (Daniel 9:24-27)
+
+Biblical scholars teach that "70 weeks" = 490 years, including numerous
+Jewish scholars, that are clear on the fact that this prophecy is
+speaking of "weeks of years" in which every day of the prophetic week
+means a year. This is in harmony with the bible's own explanation of
+prophetic time. The Hebrew for "seventy weeks" literally means "70
+sevens". This is recognised by scholars to mean 70 sets of 7 years, a
+total of 490 years - each day representing a year.
+
+The year-for-a-day principle appears in the Bible as a divinely
+established identity in prophetic symbolism: "I have appointed thee each
+day for a year." (Ezekiel 4:4-6; Numbers 14:34)
+
+On "seventy weeks" (70 x 7 years), Jewish commentator J.J. Slotki
+states: "The cryptic phraseology may have been suggested by the
+seven-year cycle of Lev. xxv. The expression 'week of years' occurs in
+the Mishnah (Sanh. v.i)." (J.J. Slotki, Daniel, Ezra, and Nehemiah,
+p.77a).
+
+One could compare the expression "weeks of years" with "seven sabbaths
+of years\..., seven times seven years;\... forty and nine years" in the
+book of Leviticus. (Leviticus 25:8)
+
+Other Jewish scholars concur on "he shall confirm the covenant with many
+for one week" (Daniel 9:27), Midrash Rabbah reads: "'Week' represents a
+period of seven years." (Lamentations, Soncino ed., p.65, note 3) and on
+this same reference (v.27), the Talmud says: "'One week' in Dan. ix
+means a week of years." (Yoma 54at Soncino ed., p.254, note 6)
+
+Regarding the "seventy weeks are determined" (v.24), the Talmud states
+it to be "490, i.e. seventy weeks of years". (Nazir 32b, Soncino ed.,
+p.118, note 6). Isaac Lesser refers to "Ancient Jewish writers", Rashi
+and other commentators as recognizing "year-weeks". (Isaac Leeser, The
+Twenty-Four Books of the Holy Scriptures, 1853, on Daniel 9:24,25;
+p.1243, notes 47,48)
+
+Following is the outline of the prophecy that was to be fulfilled during
+the period of "seventy weeks". Daniel 9:24 says Seventy weeks are
+determined upon thy people and upon thy holy city, to finish the
+transgression, and to make an end of sins, and to make reconciliation
+for iniquity, and to bring in everlasting righteousness, and to seal up
+the vision and prophecy, and to anoint the most Holy.
+
+This prophecy unveiled the future history of Judah and Israel including
+the precise time of Messiah's appearance. When examining this we notice
+a clear structure in which each verse deals firstly with Messiah, then
+with Jerusalem.
+
+Dan 9:25 , At the end of 7 + 62 weeks Messiah will appear and Jerusalem
+will be rebuilt, but under. conditions of distress.
+
+Dan 9:26, After the 7 + 62 weeks Messiah will die violently ( His
+substitutional death for mankind, Isaiah 53) and a desolator prince
+(Titus) will destroy Jerusalem again.
+
+Dan 9:27, During the 70th week Messiah will keep covenant with many
+people and in the midst (middle) of that week He will cause sacrifices
+to cease. By His sacrifice Messiah would make the temple desolate and
+desolations are determined on the desolate ( those who rejected Messiah)
+until the consummation -- the full restoration of the fall.
+
+The Mesiah would accomplish this and when Jesus appeared He stated in
+mark 1:15 ... The time is fulfilled, and the kingdom of God is at hand:
+repent ye, and believe the gospel. But how would one determine the start
+of the prophetic count to realize that Jesus was telling everyone I am
+here as per what the scriptures says.
+
+Well we need to revisit Daniel 9:25 and then determine our start
+circumstances. Know therefore and understand, that from the going forth
+of the \[decree; commandment\] to restore and to build Jerusalem unto
+Messiah the Prince shall be seven weeks, and threescore and two weeks:
+the street shall be built again, and the wall, even in troublous times.
+(Daniel 9:25) It begins from the decree to restore and build Jerusalem.
+
+So, when did this take place? The Bible itself tells us: it was in the
+seventh year of the reign of the Persian king Artaxerxes (Ezra 7:1,7,8),
+when he issued his first "decree" (vv. 11-26) to rebuild the ruined city
+of Jerusalem.
+
+Leading up to this decree were two others - those of Cyrus and Darius -
+which related only to the building of the ruined temple. In 536 BC,
+Cyrus allowed the Jewish exiles in Babylon to return to Jerusalem and
+rebuild the temple. (2 Chronicles 36:22-23).
+
+In 520 BC, Darius reaffirmed and expedited Cyrus' decree concerning the
+temple. And in February, 515 BC, the temple was dedicated.
+(Ezra.6:13-18. Bright, A History of Israel p.372)
+
+It took the three decrees - of Cyrus, Darius and of Artaxerxes I - to
+implement the "commandment" of God, as Ezra terms it. Ezra 6:14.
+
+And it was this third decree, "in the seventh year of Artaxerxes" in 457
+BC, that gave Jerusalem its legal rebirth, restoring full autonomy in
+legal judgments, including the death penalty. Ezra 7:7,24-26. This made
+possible the restoration of Jerusalem to capital city status -
+necessitating its rebuilding as a visible administrative center.
+Corresponding with the prophecy to "restore and rebuild Jerusalem" as
+referenced in Daniel 9:25, that should be used as the most accurate date
+from which to begin the 490-year count to the Messiah.
+
+In summary, Daniel defined the prophecy. Ezra recorded the commencement
+date and then for 400 years there was silence. While Judah and others
+waited, the countdown began. There is no date in Bible history of which
+one can be more certain and certainly no doubt that this prophecy
+existed. It was translated into a Greek version by seventy Jewish
+scholars in Alexandria between 283 and 180 BC, and circulated throughout
+the Greek-speaking world.
+
+Now the wording of the prophecy that "from the going forth of the
+commandment to restore and to build Jerusalem, UNTO MESSIAH THE PRINCE,
+SHALL BE 7 WEEKS + 62 WEEKS", amounting to 69 weeks or 483 years,
+provides us with a specific time for the more important event --- the
+appearance of the Messiah. And so when we calculate 483 years from the
+"commandment to restore and to build Jerusalem", we get the very year
+when Messiah would appear.
+
+Therefor when we add 483 years to 437 BC we arrive at 27 AD. And true to
+the prophecy Luke records how Jesus enters the temple and proclaims -The
+Spirit of the Lord is upon me, because he hath anointed me to preach the
+gospel to the poor; he hath sent me to heal the brokenhearted, to preach
+deliverance to the captives, and recovering of sight to the blind, to
+set at liberty them that are bruised, To preach the acceptable year of
+the Lord. And he closed the book, and he gave it again to the minister,
+and sat down. And the eyes of all them that were in the synagogue were
+fastened on him. And he began to say unto them, This day is this
+scripture fulfilled in your ears. Luk 4:18-21
+
+But what year? well Luke supplies that as well, Now in the fifteenth
+year of the reign of Tiberius Caesar, Pontius Pilate being governor of
+Judaea, and Herod being tetrarch of Galilee, and his brother Philip
+tetrarch of Ituraea and of the region of Trachonitis, and Lysanias the
+tetrarch of Abilene, Annas and Caiaphas being the high priests, the word
+of God came unto John the son of Zacharias in the wilderness. And he
+came into all the country about Jordan, preaching the baptism of
+repentance for the remission of sins; As it is written in the book of
+the words of Esaias the prophet, saying, The voice of one crying in the
+wilderness, Prepare ye the way of the Lord, make his paths straight.
+Luke 3:1-4
+
+Luke supplies historical facts, confirming the date by referencing
+Tiberius Ceasars reign. There is abundant evidence on the Caesars of
+Rome and so we can identify the fifteenth year of Tiberius' reign as 27
+AD. To be precise Tiberius' fifteenth year began in September or
+October, 27 AD
+
+Concerning the veracity of Luke we shall consult F. F. Bruce, of the
+University of Manchester, who offers this tribute to his historical
+accuracy.
+
+A man whose accuracy can be demonstrated in matters where we are able to
+test it is likely to be accurate even where the means for testing him
+are not available. Accuracy is a habit of mind, and we know from happy
+(or unhappy) experience that some people are habitually accurate just as
+others can be depended upon to be inaccurate. Luke's record entitles him
+to be regarded as a writer of habitual accuracy. (F.F. Bruce, The New
+Testament Documents. Are They Reliable? London: Inter Varsity Press,
+1974, p. 90. Emphasis supplied)
+
+In addition, Clark Pinnock, Professor of Interpretations at McMasters
+University, Toronto, concurs, with this comment. There exists no
+document from the ancient world witnessed by so excellent a set of
+textual and historical testimonies, and offering so superb an array of
+historical data on which the intelligent decision may be made. An honest
+(person) cannot dismiss a source of this kind. (McDowell, Josh The
+Resurrection Factor. San Bernadino Ca: Here's Life Publishers, Inc.,
+1981, p. .9)
+
+For more information on this topic including an in depth study on the
+origins of the Messianic promises both biblical and non biblical
+read\...
+
+STOLEN IDENTITY
+
+
+
+----------------------------------------------------------------------
+CHUNK 2 — Between 'A Judgement from God' and 'Discovery Questions Answered' (lines 494-500)
+----------------------------------------------------------------------
+
+
+The corpse came back
+
+Deadman\'s Secrets
+
+The killing of Paradise
+
+
+
+----------------------------------------------------------------------
+CHUNK 3 — Between 'Discovery Questions Answered' and 'A Super Civilization That Vanished' (lines 801-813)
+----------------------------------------------------------------------
+
+
+NOAH'S ARK
+
+Indeed the evidence is overwhelming.
+
+DISCOVERY - QUESTIONS ANSWERED
+
+THE ARK CONSPIRACY
+
+NOAH\'S ARK DISCOVERED
+
+RESETIVITY SCANS
+
+
+
+----------------------------------------------------------------------
+CHUNK 4 — Between 'mythical book' article and 'Dinosaurs' article (lines 1485-1486)
+----------------------------------------------------------------------
+
+Article2
+
+
+
+----------------------------------------------------------------------
+CHUNK 5 — Between 'Joseph of Arimathea' and 'Toppling Evolution' (lines 4399-4400)
+----------------------------------------------------------------------
+
+MEN IN EMBARRASSING PLACES
+
+
+
+----------------------------------------------------------------------
+CHUNK 6 — Between 'Noah's Ark Found (resistivity)' and 'Wolves in Sheep's Clothing' — contains the unmatched 'Science and technology superior to today' passage (lines 5757-5830)
+----------------------------------------------------------------------
+
+
+Science and technology superior to today
+
+HOW PREPOSTEROUS
+
+Our modern world is flattering itself that never before in the history
+of man has there been such a brainy lot of scientists as are with us
+now. In this 21st century we are so educated, so cultured, so advanced,
+that it may be tempting to think that our ancestors were by comparison
+bumbling cave men.
+
+Could this be a simple case of egotism, based on ignorance? Yes, we do
+have wonderful technology today. And it is exploding at a rate that is
+breathtaking. But is this because we are more intelligent than our
+ancestors or could there be another reason? I think most of us will
+realise, mankind is no more intelligent than he was a thousand years
+ago, but there is a factor in our favour: we have accumulated more
+technology. We have the accumulated knowledge of the past upon which we
+can draw and make improvements.
+
+That's why we have so much. And now our accumulated knowledge is
+building exponentially. What an exciting time to be alive! But many of
+us have been walking over our past, regarding it lightly, unaware of
+priceless treasures lost, discarded and forgotten. Literally there is a
+king's ransom of information that could transform our life style in many
+other ways, if we would only search, study and take advantage of it.
+
+I did not come upon this information by choice. A few years ago I
+happened to be researching for a history book, in which prehistory would
+have probably occupied just one brief chapter. At first, when I stumbled
+across one "out of place" item, I simply dismissed it as irrelevant.
+However, it was not just in one spot. As I investigated further, a few
+more of them popped up in various places. Still, I continued to push
+them aside because they could not be explained.
+
+These "out of place" items continued to surface. Now they were emerging
+more persistently. Finally, it became clear. A pattern was developing.
+You see, most archaeologists specialise in the country of their
+interest, and become proficient in Egyptian archaeology, North American,
+African, or whatever. And the odd "out of place" find is usually
+dismissed. It is only when you start taking in the BIG picture -- the
+world-wide scene -- when you notice the same "out of place" items in
+other parts of the world, that it becomes possible to see a pattern
+emerging. I discovered that there was a connection between these "out of
+place" items -- whether in South America, the Pacific or the Old World.
+There was an "agreement" between them. They spoke with the same voice,
+hinting at a prehistoric high civilisation, a global super culture, that
+had been lost, ignored, or forgotten. The bible does not go into detail
+about this matter but certainly does not rule it out. Alluding to it in
+Genesis 4 it references a Tubalcain, who was an instructer of every
+artificer in brass and iron. It was not until the 1750s that the
+industrial revolution began and from then to now in a little over 250
+years we have increased rapidly in technology. The same could very well
+have happened pre flood and the evidence surely suggests it did.
+
+Here was something that we had never been told about! This was the
+missing ingredient to history! Suddenly it struck me. That's when I
+resolved to take the matter more seriously. So I scrapped plans for the
+book I was writing and began serious research for what would eventually
+become Dead Men's Secrets which revealed many unexplainable discoveries.
+
+Do you know that most information concerning ancient secrets has been
+lost? Even worse that most of it was deliberately destroyed! Do you know
+that over the centuries there has been widespread destruction of
+artifacts and printed records, in which the greatest depositaries of
+knowledge from the ancient world are lost forever? Fortunately, though a
+small portion did survive. You must search for it but it's there! and
+some of it is quite mind blowing! Still unexplainable. So if you would
+like to know more on this fascinating topic and get a more complete
+understanding of the ancient world, like I did, get a copy of 64 secrets
+of the that are still ahead of us.
+
+64 Secrets Still Ahead of US
+
